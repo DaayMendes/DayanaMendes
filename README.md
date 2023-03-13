@@ -18,7 +18,7 @@ Migrando de carreira 🚀
  
  <br>
  
-  ### Venha me conhecer!
+  ### Minhas Redes!
  
 <div>
 
